@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+for sure learning and discovering.  
+in love with tech world and its vibrant ecosystem.
+
+secondary account: @marodriguezr
