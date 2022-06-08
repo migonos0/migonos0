@@ -17,4 +17,4 @@ Here are some ideas to get you started:
 for sure learning and discovering.  
 in love with tech world and its vibrant ecosystem.
 
-secondary account: @marodriguezr
+secondary account: [@marodriguezr](github.com/marodriguezr)
